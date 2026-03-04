@@ -1,3 +1,1 @@
 # AI_PROJECT_PRODUCT_RECOMMNEDATION_SYSTEM
-
-cjhsafjsgjfwshjfsvfgsvcs
